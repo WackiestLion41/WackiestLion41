@@ -2,7 +2,7 @@
 - 👀 I’m interested in discord work 
 - 🌱 I’m currently learning food
 - 💞️ I’m looking to collaborate on discord server making
-- 📫 How to reach me ...
+- 📫 How to reach me Wackiestlion41@gmail.com
 
 <!---
 WackiestLion41/WackiestLion41 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
